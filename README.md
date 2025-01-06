@@ -1,4 +1,4 @@
-### Hi there JOY JAMES SWAMY - URK23CS1042 👋
+### Hi there JOY JAMES SWAMY - 👋
 
 
 Here are some ideas to get you started:
